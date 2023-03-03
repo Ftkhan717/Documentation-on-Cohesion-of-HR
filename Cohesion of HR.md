@@ -58,6 +58,6 @@ To ensure cohesion within an HR team, there are several strategies that can be e
 
     * A record of any issues that have arisen within the HR department. This should include any disputes or disagreements that have arisen between staff members.
 
-By documenting the cohesion of the HR department, organizations can gain insight into how the department is functioning and where improvements can be made.
+* By documenting the cohesion of the HR department, organizations can gain insight into how the department is functioning and where improvements can be made.
 
 This can help to ensure that the HR department is working together as efficiently and effectively as possible.
