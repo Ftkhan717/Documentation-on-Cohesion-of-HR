@@ -6,6 +6,8 @@
 
 * In the Call Detail, we write the detail of the person whom we interviewed and write our feeback about him.
 
+* Just by clicking on the down information in the call details, you will be able to edit it. 
+
 * we write his education, skills, achievements.
 
 * We write a kind of feedback and may be it is negative and positive.
@@ -24,7 +26,7 @@
 
 * Paste the email address.
 
-* Write the interview in the subject.
+* Write the interview in the subject and then paste the required skill.
 
 * After getting reply from the candidate, we will then send the second script to him/her.
  
