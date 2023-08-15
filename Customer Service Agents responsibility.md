@@ -2,11 +2,17 @@
 
 A person in the mentioned position would typically handle various tasks related to customer service and client management. Some of the key responsibilities might include:
 
-Client Communication: Communicating with clients via various channels (phone, email, chat) to address inquiries, provide assistance, and resolve issues related to payments, billings, and account-related matters.
+### Client Communication:
 
-Payment Processing: Managing client payments, ensuring they are processed accurately and in a timely manner. This includes verifying payment details, resolving payment discrepancies, and confirming successful transactions.
+Communicating with clients via various channels (phone, email, chat) to address inquiries, provide assistance, and resolve issues related to payments, billings, and account-related matters.
 
-Billing and Invoicing: Generating and sending invoices to clients, accurately reflecting the products or services provided. Addressing billing inquiries, clarifying charges, and resolving any billing-related concerns.
+### Payment Processing:
+
+Managing client payments, ensuring they are processed accurately and in a timely manner. This includes verifying payment details, resolving payment discrepancies, and confirming successful transactions.
+
+### Billing and Invoicing:
+
+Generating and sending invoices to clients, accurately reflecting the products or services provided. Addressing billing inquiries, clarifying charges, and resolving any billing-related concerns.
 
 Issue Resolution: Identifying and resolving client concerns, complaints, or escalations related to payments, billing, and account issues. Working to ensure a satisfactory resolution for the client.
 
