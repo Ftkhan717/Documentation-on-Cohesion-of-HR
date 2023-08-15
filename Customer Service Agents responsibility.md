@@ -1,3 +1,5 @@
+## Customer Service Agents Responsibilities:
+
 A person in the mentioned position would typically handle various tasks related to customer service and client management. Some of the key responsibilities might include:
 
 Client Communication: Communicating with clients via various channels (phone, email, chat) to address inquiries, provide assistance, and resolve issues related to payments, billings, and account-related matters.
