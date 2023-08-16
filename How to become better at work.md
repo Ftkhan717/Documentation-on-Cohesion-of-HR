@@ -1,41 +1,41 @@
 ##  Doing Things Right, Being Honest, and Staying Calm:
 
-* You can become better at work if you will follow the proper procedure and process.
+* You can become better at work if you follow the proper procedures and processes.
 
-* IF you will be sloppy it will directly effect your work quality.
+* If you are sloppy, it will directly affect the quality of your work.
 
-* Putting eeforts and doing hardwork but also being very sloppy will not give the required results.
+* Putting effort and working hard, but also being very sloppy, will not give you the desired results.
 
 * A person should follow the required steps.
 
-* He should  focus on each step and give his full focus on each step.
+* They should focus on each step and give their full attention to it.
 
-* each step should be given the required attention.
+* Each step should receive the necessary attention.
 
-* If you neglect a single step it will effect your entire work quality.
+* If you neglect a single step, it will affect the overall quality of your work.
 
-* So for achieving any goal there are some proper step with it that needs to be folowed by everyone.
+* So, for achieving any goal, there are proper steps that need to be followed by everyone.
 
-* It will cause you problems later if yo think by neglecting one step will not cause any problem.
+* Neglecting one step can cause problems later, even if you think it won't.
 
-* When a perosn is in rush it also makes him forget the necessary steps, so always be patient with your work.
+* When a person is in a rush, it can make them forget necessary steps, so always be patient with your work.
 
 * Do every task with honesty and integrity.
 
-* Your each steps want honesty from you. It asks you to give it the required attention.
+* Each step requires honesty from you. It asks you to give it the attention it deserves.
 
-* There are some certain steps in a workplace which should not be ignored. 
+* There are certain steps in a workplace that should not be ignored.
 
-* If you want that your procedure and processes should run smoothly you should not do it in rush. you should take the pride in following the rocedure and processes.
+* If you want your procedures and processes to run smoothly, you should not rush. Take pride in following procedures and processes.
 
-* A person should be patient at workplace while working in an organization. because if you will do a mistake sometime you can not always correct it. 
+* Being patient at the workplace is important when working in an organization. Making a mistake might not always be fixable.
 
-* At workplace relaxation of mind is very important. so finish your all matter and then come to work. 
+* Having a relaxed mind is vital at the workplace. Finish your other matters before starting work.
 
-* Your mind should not be loaded with multiple of thoughts that will effect your quality of work.
+* Your mind should not be overwhelmed with multiple thoughts, as it will affect your work quality.
 
-* If your mind will not be relaxed it will also lead you in forgetting the process or it will also make you being sloppy with your tasks.
+* If your mind is not relaxed, it can lead you to forget processes or make you sloppy with your tasks.
 
-* You need to meditate yoursrlf properly before starting your work.
+* Properly meditate before starting your work.
 
-* So working patiently helps you to get rid of mistakes and it will also help you to work in organize form. Your workflow willconsist of minimum to no mistakes and it will run smoothly.
+* Working patiently helps you avoid mistakes and work in an organized manner. Your workflow will consist of minimal to no mistakes, and it will run smoothly.
